@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on ... Data Analysis Projects
+- 🔭 I’m currently working on ... Personal Data Analysis Projects & Power BI consulting
 - 🌱 I’m currently learning ... SQL, Python & Tableau
 - 👯 I’m looking to collaborate on ... Study sessions
 - 🤔 I’m looking for help with ... Pandas & NumPy
