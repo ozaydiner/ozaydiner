@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with ... Pandas & NumPy
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... ozaydinerr@gmail.com
-- 😄 Pronouns: ... He/him
+- 😄 Interests: ... Videogames
 - ⚡ Controversial Opinion: ... Dark Souls 1 > Dark Souls 3.
