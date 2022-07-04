@@ -7,4 +7,4 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... ozaydinerr@gmail.com
 - 😄 Pronouns: ... He/him
-- ⚡ Fun fact: ... Bananas are both a fruit and a herb at the same time.
+- ⚡ Controversial Opinion: ... Dark Souls 1 > Dark Souls 3.
