@@ -7,4 +7,4 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... ozaydinerr@gmail.com
 - 😄 Interests: ... Videogames
-- ⚡ Controversial Opinion: ... Dark Souls 1 > Dark Souls 3.
+- ⚡ Controversial Opinion: ... People gatekeep stuff more than they realize.
